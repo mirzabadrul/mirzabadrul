@@ -1,3 +1,3 @@
-👋 Hi, I dont know how to customize my profile. dont be mad
+👋 Hi, don't have much time to customize my profile. dont be mad
 
 
